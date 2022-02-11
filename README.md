@@ -1,1 +1,1 @@
-# Hypnotic_Spiral
+# Hypnotic Spiral
